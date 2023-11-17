@@ -1,0 +1,1 @@
+﻿Aqui se colocaran las fotografías tomadas
